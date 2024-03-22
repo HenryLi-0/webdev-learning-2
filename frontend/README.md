@@ -2,7 +2,7 @@
 
 following tutorial: https://www.youtube.com/watch?v=-42K44A1oMA&t=3s
 
-currently at 9 minutes, 0 seconds
+currently at 12 minutes, 19 seconds
 
 ## notes to self
 
